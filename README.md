@@ -3,3 +3,5 @@
 Telegram:@Wuyb1
 https://t.me/Wuyb1
 飞机盗号，电报盗号，Telegram盗号
+
+手机端截图
