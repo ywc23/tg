@@ -4,4 +4,5 @@ Telegram:@Wuyb1
 https://t.me/Wuyb1
 飞机盗号，电报盗号，Telegram盗号
 
-手机端截图
+手机端，电脑端截图及视频演示地址：
+https://zy.yiwuchao.cn/archives/694
